@@ -48,7 +48,7 @@ If you wish to contact me, send an email to [roysdonfibonaccipress@gmail.com](ma
 ## Bing Crosby
 - Anything Goes (1956) - Bing Crosby, Donald O'Connor 
 - Here come the WAVES (1944) - Bing Crosby
-- **Holiday Inn (1942) - Bing Crosby**
+- **Holiday Inn (1942) - Bing Crosby, Fred Astaire**
 - **The Bells of St Mary’s (1945) - Bing Crosby**
 
 ## Bob Hope
@@ -77,6 +77,7 @@ If you wish to contact me, send an email to [roysdonfibonaccipress@gmail.com](ma
 - The Amazing Adventure (1936) - Cary Grant 
 - Walk Don't Run (1966) - Cary Grant 
 - **Operation Petticoat (1956) - Cary Grant, Tony Curtis**
+- **Houseboat (1958) - Cary Grant, Sophia Loren**
 
 ## Christmas
 - A Christmas Carol (1938) - Reginald Owen 
@@ -136,6 +137,12 @@ If you wish to contact me, send an email to [roysdonfibonaccipress@gmail.com](ma
 - Royal Wedding (1951) - Fred Astaire, Jane Powell 
 - **Second Chorus (1940) - Fred Astaire, Paulette Goddard** 
 - **Swing Time (1936) - Fred Astaire**
+- **Holiday Inn (1942) - Bing Crosby, Fred Astaire**
+**- Let's Dance (1949) - Fred Astaire, Betty Hutton**
+- Blue Skies (1946) - Fred Astaire, Bing Crosby
+- Shall We Dance (1937) - Fred Astaire, Ginger Rogers
+- Daddy Long Legs (1955) - Fred Astaire, Leslie Caron
+**- Funny Face (1957) - Fred Astaire, Audrey Hepburn** 
 
 ## Gary Cooper
 - A Farewell to Arms (1932) - Gary Cooper 
@@ -168,6 +175,7 @@ If you wish to contact me, send an email to [roysdonfibonaccipress@gmail.com](ma
 ## Humphrey Bogart
 - Beat the Devil (1953) - Humphrey Bogart 
 - Racket Busters (1938) - Humphrey Bogart 
+- **The Maltese Falcon (1941) - Humphrey Bogart, Mary Astor, Gladys George**
 
 ## Jack Lemmon
 - **Mr Roberts (1955) - Jack Lemmon**
