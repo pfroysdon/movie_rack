@@ -3,13 +3,28 @@
 </p>
 
 **NOTE:**  
-At the request of my colleagues, below is a list of vintage American movies that I like.  My favorites are in BOLD.
+At the request of my colleagues, below is a list of vintage American movies and TV shows that I like.  My favorites are in BOLD.
 
 These are generally organized by actor or genre, of course some fall into multiple categories.
 
 If you wish to contact me, send an email to [roysdonfibonaccipress@gmail.com](mailto:roysdonfibonaccipress@gmail.com)
 
 
+-----------------------------------------------------------------------------------
+
+# TV shows
+-----------------------------------------------------------------------------------
+- **The Dick Van Dyke Show** - a classic with many realistic fun and clashes in a marriage
+- **Hogan’s Hero’s** - a comedy of "prison camp" spies in WWII
+- **Black Sheep Squadron** - real airplanes, no CGI
+- I Love Lucy
+- McHale's Navy - another WWII comedy
+- Leave it to Beaver
+- **MASH** - the humor grows on you
+- **The Andy Griffith Show** - a classic comedy, Don Knotts is one of a kind
+
+
+# Movies
 -----------------------------------------------------------------------------------
 
 ## Abbot and Costello
@@ -23,7 +38,7 @@ If you wish to contact me, send an email to [roysdonfibonaccipress@gmail.com](ma
 - **Tumbleweed (1953) - Audie Murphy, Lee Van Cleef** 
 
 ## Audrey Hepburn
-- Breakfast at Tiffanys (1961) - Audrey Hepburn
+- Breakfast at Tiffany’s (1961) - Audrey Hepburn
 - Funny Face (1957) - Audrey Hepburn
 - Love in the Afternoon (1957) - Audrey Hepburn
 - My Fair Lady (1964) - Audrey Hepburn
@@ -34,7 +49,7 @@ If you wish to contact me, send an email to [roysdonfibonaccipress@gmail.com](ma
 - Anything Goes (1956) - Bing Crosby, Donald O'Connor 
 - Here come the WAVES (1944) - Bing Crosby
 - **Holiday Inn (1942) - Bing Crosby**
-- **The Bells of St Marys (1945) - Bing Crosby**
+- **The Bells of St Mary’s (1945) - Bing Crosby**
 
 ## Bob Hope
 - Give Me A Sailor (1938) - Bob Hope, Betty Grable 
@@ -291,4 +306,4 @@ If you wish to contact me, send an email to [roysdonfibonaccipress@gmail.com](ma
 - Sitting Bull (1954) - Dale Robertson 
 - Something Big (1971) - Dean Martin 
 - Warlock (1959) - Henry Fonda 
-- Whistle Stop (1946) - Ava Gardner 
+- Whistle Stop (1946) - Ava Gardner
