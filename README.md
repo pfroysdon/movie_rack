@@ -10,23 +10,23 @@ If you wish to contact me, send an email to [roysdonfibonaccipress@gmail.com](ma
 
 -----------------------------------------------------------------------------------
 
-**Buck Privates (1941) - Abbot and Costello**
-**In the Navy (1941) - Abbot and Costello**
-The Guns of Fort Petticoat (1957) -  Audie Murphy, Kathryn Grant, Hope Emerson
-**Gunsmoke (1953) -  Audie Murphy, Susan Cabot, Paul Kelly**
-Ride Clear of Diablo (1954) - Audie Murphy, Dan Duryea, Susan Cabot
-**Tumbleweed (1953) - Audie Murphy, Lee Van Cleef** 
-Breakfast at Tiffanys (1961) - Audrey Hepburn
-Funny Face (1957) - Audrey Hepburn
-Love in the Afternoon (1957) - Audrey Hepburn
-My Fair Lady (1964) - Audrey Hepburn
-**Roman Holiday (1953) - Audrey Hepburn**
-**Sabrina (1954) - Audrey Hepburn**
-Anything Goes (1956) - Bing Crosby, Donald O'Connor 
-Here come the WAVES (1944) - Bing Crosby
-**Holiday Inn (1942) - Bing Crosby**
-**The Bells of St Marys (1945) - Bing Crosby**
-Give Me A Sailor (1938) - Bob Hope, Betty Grable 
+- **Buck Privates (1941) - Abbot and Costello**
+- **In the Navy (1941) - Abbot and Costello**
+- The Guns of Fort Petticoat (1957) -  Audie Murphy, Kathryn Grant, Hope Emerson
+- **Gunsmoke (1953) -  Audie Murphy, Susan Cabot, Paul Kelly**
+- Ride Clear of Diablo (1954) - Audie Murphy, Dan Duryea, Susan Cabot
+- **Tumbleweed (1953) - Audie Murphy, Lee Van Cleef** 
+- Breakfast at Tiffanys (1961) - Audrey Hepburn
+- Funny Face (1957) - Audrey Hepburn
+- Love in the Afternoon (1957) - Audrey Hepburn
+- My Fair Lady (1964) - Audrey Hepburn
+- **Roman Holiday (1953) - Audrey Hepburn**
+- **Sabrina (1954) - Audrey Hepburn**
+- Anything Goes (1956) - Bing Crosby, Donald O'Connor 
+- Here come the WAVES (1944) - Bing Crosby
+- **Holiday Inn (1942) - Bing Crosby**
+- **The Bells of St Marys (1945) - Bing Crosby**
+- Give Me A Sailor (1938) - Bob Hope, Betty Grable 
 Let's Face It (1943) - Bob Hope, Betty Hutton 
 Military Policemen (a.k.a. Off Limits) (1953) - Bob Hope, Mickey Rooney 
 My Favorite Brunette (1947) - Bob Hope
