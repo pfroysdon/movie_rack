@@ -5,7 +5,7 @@
 **NOTE:**  
 At the request of my colleagues, below is a list of vintage American movies that I like.  My favorites are in BOLD.
 
-These are generally organized by actor or genere.
+These are generally organized by actor or genre, of course some fall into multiple categories.
 
 If you wish to contact me, send an email to [roysdonfibonaccipress@gmail.com](mailto:roysdonfibonaccipress@gmail.com)
 
@@ -195,6 +195,8 @@ If you wish to contact me, send an email to [roysdonfibonaccipress@gmail.com](ma
 - **The Longest Day (1962) - John Wayne** 
 - **The Trail Beyond (1934) - John Wayne** 
 - The War Wagon (1967) - John Wayne 
+
+## Mickey Rooney
 - Quicksand (1950) - Mickey Rooney 
 - **The Twinkle in God's Eye (1955) - Mickey Rooney, Coleen Gray, Hugh O'Brian** 
 
